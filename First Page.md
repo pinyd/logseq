@@ -1,0 +1,2 @@
+- I am a bit confused about this app
+- so I need to learn and watch more Y. T. video how too.
